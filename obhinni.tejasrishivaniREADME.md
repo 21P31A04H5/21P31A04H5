@@ -13,7 +13,10 @@
 
 - Connect with me :
   
-![qrcode_www linkedin com](https://github.com/user-attachments/assets/c8183d87-a883-430f-a442-5040ad7d442a)
+![Screenshot 2024-09-01 102604](https://github.com/user-attachments/assets/2c5f7fa8-606c-4737-ae63-4084b4242b65) 
+
+
+
 
   
 
