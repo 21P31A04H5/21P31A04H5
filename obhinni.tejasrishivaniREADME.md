@@ -13,6 +13,9 @@
 
 - Connect with me :
   
+![qrcode_www linkedin com](https://github.com/user-attachments/assets/c8183d87-a883-430f-a442-5040ad7d442a)
+
+  
 
   
 <!---
